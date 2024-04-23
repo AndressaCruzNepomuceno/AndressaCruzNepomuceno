@@ -2,7 +2,7 @@
 - 👀 I’m interested in cats, videogames, scifi and tech
 - 🌱 I’m currently learning about blockchain
 - 💞️ I’m looking to collaborate on great tech discussions or some fallout/zelda theories
-- 📫 How to reach me on andressa.cruz@withclutch.com or @end.exec
+- 📫 How to reach me on andressa.cruz@withclutch.com or on slack
 - 😄 Pronouns: she/they
 - ⚡ Fun fact: I have 3 cats (Zeldo, Lonk and Torradinha) and Zeldo probably will be on my meetings trying to exploding plants or trying to knock over the TV
 
